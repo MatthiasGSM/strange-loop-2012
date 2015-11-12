@@ -14,4 +14,4 @@ Diff layer
 Crash layer
 
 
-[ I stopped taking notes. This was awesome, even if Gary is a liar ;) ]
+[ I stopped taking notes. This was awesome, even if Gary the alligator is a liar ;) ]
